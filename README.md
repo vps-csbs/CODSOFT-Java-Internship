@@ -1,1 +1,0 @@
-**CodSoft Internship Offer Letter**
